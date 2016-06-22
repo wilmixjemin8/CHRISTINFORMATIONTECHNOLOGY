@@ -4,9 +4,6 @@ ChristInformationtechnology(CIT)  has  cross technologies  like CH$, JAS, JDolla
 CROSS Technologies
 ==================
 
-1) CH$
-
-2) JDollar
 
 3) JAS 
 
