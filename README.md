@@ -12,4 +12,5 @@ d)  CIT  is   based  on unity and  truth.
 e)  It  Total  Assests is considered as  infinitve..
 
 
-
+Note:
+JDollar Section  is  only  about 0.00000000000001%  of  christinformationtechnologies.
