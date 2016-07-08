@@ -1,5 +1,5 @@
 # CHRISTINFORMATIONTECHNOLOGY
-ChristInformationtechnology(CIT)  has  cross technologies  like  JAS, and  JSWORD
+ChristInformationtechnology(CIT)  has  cross technologies  like   JSWORD
 
 A)  CIT  is  based  on  Most  powerful  advanced business (EG) to overtake  competitors..
 
