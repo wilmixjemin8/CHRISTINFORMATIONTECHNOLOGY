@@ -13,4 +13,4 @@ e)  It  Total  Assests is considered as  infinitve..
 
 
 Note:
-JDollar Section  is  only  about 0.00000000000001%  of  christinformationtechnologies.
+ZIT Section  is  only  about 0.00000000000001%  of  christinformationtechnologies.
