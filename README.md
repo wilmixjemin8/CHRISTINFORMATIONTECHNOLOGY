@@ -1,4 +1,6 @@
 # CHRISTINFORMATIONTECHNOLOGY
+=================================
+
 ChristInformationtechnology(CIT)  has  cross technologies  like   JSWORD
 
 A)  CIT  is  based  on  Most  powerful  advanced business (EG) to overtake  competitors..
@@ -15,6 +17,6 @@ e)  It  Total  Assests is considered as  infinitve..
 Note:
 ZIT Section  is  only  about 0.00000000000001%  of  christinformationtechnologies.
 
-Note :JSWORD,JAS  is came  through  the wisdom of jesus christ.
+Note :JSWORD,JAS  is came  through  the wisdom of jesus christ and  what  we tested.
 
 So  those  who oppose   this  Programming language   is  said to   antichrist   sprit.
