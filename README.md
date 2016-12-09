@@ -15,6 +15,6 @@ e)  It  Total  Assests is considered as  infinitve..
 Note:
 ZIT Section  is  only  about 0.00000000000001%  of  christinformationtechnologies.
 
-Note :JDOLLar,Cdollar,JAS  is came  through  the wisdom of jesus christ.
+Note :JSWORD,JAS  is came  through  the wisdom of jesus christ.
 
 So  those  who oppose   this  Programming language   is  said to   antichrist   sprit.
